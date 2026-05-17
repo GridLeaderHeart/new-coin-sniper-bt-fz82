@@ -1,4 +1,4 @@
-# 
+# rare sandwich attack bot plugins is the best sandwich attack bot plugins with degen-coin-scanning and take-profit. Safe, reliable, and optimized for MEV, sniper, and arbitrage
 
 
 
